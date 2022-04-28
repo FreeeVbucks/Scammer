@@ -1,2 +1,2 @@
 # Scammer
-I will Defenitely not scammy you:)
+I will Definitely not scammy you:)
